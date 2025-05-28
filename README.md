@@ -40,5 +40,5 @@ Run bot :
 ```
 python3 bot.py
 ```
-
-
+...
+Note VPS ONLY
