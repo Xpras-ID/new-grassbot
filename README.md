@@ -2,7 +2,7 @@
 
 
 # JOIN GRASS : [https://app.grass.io](https://app.grass.io/register/?referralCode=XD55tH6i9rsxcRG)
-# BUY PROXI : [https://center.cherryproxy.com)
+# BUY PROXI : https://center.cherryproxy.com
 # YOUTUBE CHANNEL : [FAFA NDM](https://www.youtube.com/@FAFANDM)
 
 # TUTORIAL :
