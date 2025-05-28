@@ -1,4 +1,4 @@
-# NEW BOT GRASS WITH BASE PROXY - MULTI ACCOUNTS & MULTI THREADS
+# NEW BOT GRASS
 
 
 # JOIN GRASS : [https://app.grass.io](https://app.grass.io/register/?referralCode=XD55tH6i9rsxcRG)
